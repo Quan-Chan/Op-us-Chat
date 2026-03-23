@@ -1,4 +1,4 @@
-施工中🏗️
+我去写Coder了，Chat太难了,或者说太简单了
 
 # Opus-Chat
 
